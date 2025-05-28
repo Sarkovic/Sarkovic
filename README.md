@@ -1,4 +1,4 @@
-## Subhey Sadir Rahman
+## Subhey Sadi Rahman
 
 **Final Year Computer Science Undergraduate**  
 **Research Assistant at Institute for Advanced Research (IAR), UIU**  
