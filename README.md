@@ -1,6 +1,6 @@
 ## Subhey Sadi Rahman
 
-**Final Year Computer Science Undergraduate**  
+**Computer Science Graduate**  
 **Research Assistant at Institute for Advanced Research (IAR), UIU**  
 **Undergraduate Teaching Assistant at United International University (UIU)**
 
