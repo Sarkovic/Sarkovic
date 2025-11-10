@@ -47,7 +47,7 @@ A passionate and driven final-year Computer Science undergraduate with hands-on 
 
 ### Beyond the Code
 
-When not immersed in code or research, I enjoy building custom PCs and gaming—fueling my competitive spirit with racing simulators and FIFA. This blend of technical rigor and playful exploration shapes my holistic approach to problem-solving and teamwork.
+When not immersed in code or research, I enjoy building custom PCs and gaming, fueling my competitive spirit with racing simulators and FIFA. This blend of technical rigor and playful exploration shapes my holistic approach to problem-solving and teamwork.
 
 ---
 
